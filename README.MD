@@ -1,2 +1,2 @@
 # Lucrare de licenta TRANSBUC 
-* Absolvent: Cornel Ilie *
+* Absolvent: Cornel Ilie
